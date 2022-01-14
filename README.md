@@ -1,1 +1,1 @@
-# T-rex-apk
+# Trex-Etapa-0.5
